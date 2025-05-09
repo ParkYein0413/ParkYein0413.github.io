@@ -1,1 +1,0 @@
-# parkyein0413.github.io
